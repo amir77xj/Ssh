@@ -12,22 +12,11 @@
 
 ❇️ Dynamic Expire time 
 
-# Telegram Channel: 
-
-https://t.me/Shahanpanel
-
-
-# حمایت مالی : 
-
-آدرس ولت تتر : 
-
-
-USDT TRC20 Address :
-TWAcjmHKhqMQ58xXo4do4RgALLkfMm61Ux
-
-USDT ERC20 Address :
-0x1426afae97fef9f4928e4e171593cae9f5c630cd
  
+
+
+
+
  # حمایت قلبی 
  
   ⭐️ جهت حمایت از ما به پروژه ستاره بدین
